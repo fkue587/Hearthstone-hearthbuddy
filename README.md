@@ -4,7 +4,7 @@
 
 炉石传说佣兵战纪坐牢脚本
 
-下载链接： https://wwp.lanzoum.com/imNYQ047gugj
+下载链接： https://wwp.lanzoum.com/iy6q204a2ana
 
 防止迷路，烦请进去QQ群：735270768，
 
