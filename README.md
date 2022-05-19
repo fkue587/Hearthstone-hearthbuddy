@@ -20,7 +20,7 @@
 
 1.1.先注册腾讯云：https://curl.qcloud.com/pVsY7OEy
 
-1.2.购买链接：https://curl.qcloud.com/lNvlJqu4
+1.2.购买链接：https://curl.qcloud.com/fB32QQcR
 
 ![输入图片说明](https://gitee.com/mostlove/lushiXD/raw/master/%E5%BE%AE%E4%BF%A1%E6%88%AA%E5%9B%BE_20220503130652.png)
 
